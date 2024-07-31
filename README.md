@@ -1,6 +1,6 @@
 In today’s digital age, streaming platforms have revolutionized how we consume entertainment. Among the plethora of options available, StreamEast stands out as a versatile and user-friendly platform that caters to diverse tastes and preferences.
 
-Click Here
+<a href="https://hindulive.com/sports/">Visit StramCast</a> 
 
 **What is StreamEast?**
 
